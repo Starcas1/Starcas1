@@ -15,5 +15,5 @@
 
 </div><br/>
 
-Apaixonado por tecnologia e jogos 
+Apaixonado por tecnologia e jogos.
 
